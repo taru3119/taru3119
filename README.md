@@ -1,2 +1,5 @@
+<br>
 <h3 align = "center"><img src="https://readme-typing-svg.herokuapp.com?color=%239DF0F7&duration=1500&center=true&multiline=true&lines=%EA%9C%B1+%E1%B4%80+%E1%B4%9B+%E1%B4%8F%E2%A0%80%2F%E2%A0%80%E1%B4%9B+%E1%B4%80+%CA%80+%E1%B4%9C;%E2%80%8A%CA%9C+%E1%B4%87+%2F+%CA%9C+%C9%AA+%E1%B4%8D"></h3>
+<br>
 <div align=center><img align="center" alt="GIF" src="https://lh3.googleusercontent.com/okBPFrYjC4K-rrJxrJIxsYHFuYEDkVDGCncwr-Y3L-2wmPCBn4ngSOEIw1ye402TgdrOgmJZJ8b9B68c8NLCu91XdTUh-eu2LkW8Js7LpSWRlZUTJJyHBBY-4j2UZqyvS7664VecTDXkV8ROwO1QH9_nJ1AEFMzAGuJOcd8XVfdsSJ79vYeHFGayeDHO6TGnsYJSNWC5ensgJfzR33pkDmm9YwvD2A38Uw4O62PCYru69kd6aj7uDTt4L7PfwB9eoxWrOATRCPo6sQxg2JSGiOcv83F9kU-2Ny8VxNuCkWIgAPdei1tavO7nCbJWXlffGSxzdduvpnjQOkYPq6al_sFCIMkfw_ToRZl_w-XRB3NPetpMnEDwa5F-Rx-stCkY_GhTAXg4OEjIy7QSU-a3DDyueSmKexSmzP42qUxqUeGoJI2MI9pIc_GeruZqbTmgp_e0cmCpeHwexDG0zKdA21r5ldoO6rOJAx8m6kyRn38jxiNDm2vgewp4-a6Qnvi20YWnADTCtdSlOJu0FJjA6xZQGyHND7TMkqPNwh1pPY5TKdOChgPz80XzoQnQhV_qHgZ1e5nVVo6KEW5MtAFXC2PZvTb8gX0PtCMSwaCCrnrRZY3j0jKJg-101WLlRf2BBk99IaNAGlAxtQcBh3qStQid1oxCYu0AVnca6oK79fUJWxaXmybgBACjD_RaB_xATqjAofH3Sw2UFdi6ZrTn3g=w69-h34-no?authuser=5"/></div>
+</br>
