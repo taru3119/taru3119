@@ -5,4 +5,4 @@
   
 just a creative with a dash of nerd ! 
   
-[ˢᵒᵘⁿᵈᶜˡᵒᵘᵈ](https://soundcloud.com/horkwithac) + [ᵗʷⁱᵗᵗᵉʳ](https://twitter.com/taru3119) + [ᵇˡᵘᵉˢᵏʸ](https://bsky.app/profile/taru.lol) + [ᵏᵒᶠᶦ](https://ko-fi.com/taru3119)
+[ʸᵒᵘᵗᵘᵇᵉ](https://www.youtube.com/channel/UC1dU9jTVA2WlAxFrGB4IlXw) + [ᵗʷⁱᵗᵗᵉʳ](https://twitter.com/taru3119) + [ᵇˡᵘᵉˢᵏʸ](https://bsky.app/profile/taru.lol) + [ᵏᵒᶠᶦ](https://ko-fi.com/taru3119)
